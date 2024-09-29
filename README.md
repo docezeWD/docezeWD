@@ -1,4 +1,4 @@
-Shock lest shackles free you
+Shockless shackles free you
 
 Volt face cons
 
@@ -6,7 +6,7 @@ Abandon you again
 
 I won't feel, not this time
 
-Shock lest shackles free you
+Shockless shackles free you
 
 Volt face cons
 
